@@ -8,3 +8,6 @@
 
 ## Kesan Pesan Cluster 04 Sejauh ini
 [Kakak pembimbing baik.]
+
+## Harapan Kuliah
+[Bisa bertahan dan beradaptasi]
